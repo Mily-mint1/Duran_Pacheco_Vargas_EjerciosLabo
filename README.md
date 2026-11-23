@@ -1,3 +1,0 @@
-# Duran_Pacheco_Vargas_EjerciosLabo
-# Duran_Pacheco_Vargas_EjerciosLabo
-# Duran_Pacheco_Vargas_EjerciosLabo
